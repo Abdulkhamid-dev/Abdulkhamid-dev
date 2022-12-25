@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Abdulkhamid Bolbekov Front End Engineer 
+- 👀 I’m interested in Coding & Wrestling & Travelling
+- 🌱 I’m currently learning Node.js Back End
+- 📫 How to reach me t.me https://t.me/Abdulkhamid_1828 Linkedin: linkedin.com/in/abdulkhamid-bolbekov-900065216/ Mail: abdulkhamid1828@gmail.com
